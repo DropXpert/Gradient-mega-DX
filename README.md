@@ -1,7 +1,7 @@
-![dhhehehh](https://github.com/user-attachments/assets/ec99e794-5d07-49cd-a7bd-c1ec5ec39796)
-![sgsggh](https://github.com/user-attachments/assets/a1cf0d15-31c3-4f16-a6cc-3629f814a259)
-# Gradient Network Multiple Nodes Farming In One Device join my telegram channel https://t.me/dropxpert5 
+* Gradient Network Unlimited Nodes Farming In One Device join my telegram channel https://t.me/dropxpert5 For Commands
 ********************************************************************************************************
-# Will post the script after 100 stars
-
-
+* How to get Account Info
+![hvkllvl](https://github.com/user-attachments/assets/e2416d6a-039e-46bc-824d-28764ff8c54e)
+**************************************************************************************************
+* Preview 
+![hvkllvl](https://github.com/user-attachments/assets/4df0d589-22e0-4909-8ca1-32394f856bde)
