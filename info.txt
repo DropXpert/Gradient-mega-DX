@@ -1,0 +1,7 @@
+[
+  {"node": "your node id", "token": "your Token ","client": "your Client id"},
+  {"node": "your node id", "token": "your Token","client": "your Client id"},
+  {"node": "your node id", "token": "your Token","client": "your Client id" },
+  {"node": "your node id", "token": "your Token","client": "your Client id"},
+  {"node": "your node id", "token": "your Token","client": "your Client id"}
+]
